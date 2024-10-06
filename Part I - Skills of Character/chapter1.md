@@ -2,8 +2,11 @@
 
 *Embracing the Unbearable Awkwardness of Learning*
 
-> "Character cannot be developed in ease and quiet. Only through experiences of trial and suffering can the soul be strengthened, vision cleared, ambition inspired, and success achieved."
-— Helen Keller
+> Character cannot be developed in ease and quiet. Only through experiences of trial and  
+> suffering can the soul be strengthened, vision cleared, ambition inspired, and success  
+> achieved.  
+>
+> — Hellen Keller
 
 Bab ini dimulai dengan kisah Sara Maria Hasbun, seorang polyglot yang mampu berbicara dalam beberapa bahasa. Pada awalnya, Sara Maria merasa kesulitan belajar bahasa baru dan menghadapi banyak tantangan. Namun, melalui ketekunan dan keberanian untuk menghadapi ketidaknyamanan, dia berhasil menguasai beberapa bahasa. Pengalaman ini menunjukkan bahwa kemampuan belajar bahasa bukanlah soal bakat alami, melainkan tentang menghadapi dan menerima ketidaknyamanan dalam proses pembelajaran.
 

@@ -2,9 +2,10 @@
 
 *Building the Capacity to Absorb and Adapat*
 
-> "It is not the most intellectual of the species that survives; it is not the strongest . . .
-the species that survives is the one that is able best to adapt."
-— Leon C. Megginson
+> It is not the most intellectual of the species that survives; it is not the strongest . . .  
+the species that survives is the one that is able best to adapt.  
+>
+> — Leon C. Megginson
 
 Bab ini membahas pentingnya menjadi seperti "spons" dalam pembelajaran, yaitu kemampuan untuk menyerap dan beradaptasi dengan informasi baru. Menjadi spons bukan sekadar mencari informasi sebanyak mungkin, tetapi juga mengenai kualitas informasi yang diambil dan bagaimana kita menyaringnya. Pertumbuhan dan kesuksesan lebih bergantung pada cara kita belajar daripada seberapa keras kita bekerja.
 
