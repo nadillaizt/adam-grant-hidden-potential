@@ -3,6 +3,7 @@
 *Infusing Passion into Practice*
 
 > It is neither work nor play, purpose nor purposelessness that satisfies us. It is the dance between.
+>
 > — Bernard De Koven
 
 Chapter ini mengeksplorasi pentingnya menyuntikkan gairah ke dalam praktik harian untuk mencapai potensi tersembunyi. Kisah Evelyn Glennie, seorang musisi yang kehilangan pendengarannya sejak usia muda, menjadi contoh bagaimana rasa suka terhadap proses belajar dapat mengubah tantangan menjadi sesuatu yang menyenangkan. Evelyn tumbuh di Skotlandia dan mengembangkan minatnya pada musik, terutama dalam memainkan berbagai instrumen perkusi, meski ia tidak dapat mendengarnya dengan telinga. Sebagai gantinya, ia belajar merasakan getaran musik melalui tubuhnya—dari tangan, kaki, hingga tulang pipinya.

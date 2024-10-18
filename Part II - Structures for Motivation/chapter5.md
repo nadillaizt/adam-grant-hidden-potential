@@ -3,6 +3,7 @@
 *The Roundabout Path to Forward Progress*
 
 > Every limit is a beginning as well as an ending.
+>
 > — George Eliot
 
 Chapter ini menceritakan perjalanan R.A. Dickey, seorang pemain baseball yang awalnya dianggap sebagai bakat besar. Saat masih muda, ia diincar oleh pencari bakat dan dianggap memiliki masa depan cerah. Setelah meraih medali perunggu Olimpiade dan dipilih oleh Texas Rangers, kariernya tampak menjanjikan. Namun, segalanya berubah ketika diketahui bahwa R.A. tidak memiliki ligamen penting di sikunya, yang menyebabkan tim mengurangi bonusnya secara drastis dan menempatkannya di liga minor. Situasi ini membuat kariernya mandek, meski ia terus berusaha keras untuk kembali ke liga utama.

@@ -4,6 +4,7 @@
 
 > "There is a crack, a crack in everything
 > That's how the light gets in."
+>
 > — Leonard Cohen
 
 Bab ini mengeksplorasi bagaimana menjadi seorang "imperfectionist" dapat membantu seseorang menemukan keseimbangan antara kesalahan dan pencapaian yang luar biasa. Karakter ini terlihat pada tokoh Tadao Ando, seorang arsitek ternama yang berhasil menciptakan desain bangunan yang tahan gempa meski tanpa pelatihan formal. Ando, yang dibesarkan dalam kemiskinan, belajar arsitektur secara otodidak dengan mengamati bangunan di sekitarnya dan membaca buku. Ketika gempa besar melanda Kobe, Jepang, tahun 1995, tidak ada satu pun dari 35 bangunan yang didesainnya yang runtuh. Keberhasilan Ando menunjukkan bahwa kunci dari keahliannya bukanlah perfeksionisme, melainkan kemampuan untuk memilih aspek mana yang perlu dikerjakan dengan baik dan mana yang bisa dibiarkan tidak sempurna.
