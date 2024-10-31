@@ -2,7 +2,7 @@
 
 *Unearthing Collective Intelligence in Teams*
 
-> Some other eyes will look around, and find the things I’ve never found.
+> Some other eyes will look around, and find the things I’ve never found.  
 >
 > — Malvina Reynolds
 

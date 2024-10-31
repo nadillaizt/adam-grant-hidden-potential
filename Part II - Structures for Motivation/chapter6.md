@@ -2,8 +2,8 @@
 
 *The Art of Flying by Our Bootstraps*
 
-> I believe in pulling yourself up by your own bootstraps. I believe it is possible.
-I saw this guy do it once in Cirque du Soleil.
+> I believe in pulling yourself up by your own bootstraps. I believe it is possible.  
+> I saw this guy do it once in Cirque du Soleil.  
 >
 > — Stephen Colbert
 

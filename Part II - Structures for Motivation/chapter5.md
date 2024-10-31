@@ -2,7 +2,7 @@
 
 *The Roundabout Path to Forward Progress*
 
-> Every limit is a beginning as well as an ending.
+> Every limit is a beginning as well as an ending.  
 >
 > — George Eliot
 

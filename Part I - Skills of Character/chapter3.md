@@ -2,8 +2,8 @@
 
 *Finding the Sweet Spot between Flawed and Flawless*
 
-> "There is a crack, a crack in everything
-> That's how the light gets in."
+> "There is a crack, a crack in everything  
+> That's how the light gets in."  
 >
 > — Leonard Cohen
 

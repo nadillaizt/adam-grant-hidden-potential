@@ -2,8 +2,8 @@
 
 *Designing Schools to Bring Out the Best in Students*
 
-> Just as Michelangelo thought there was an angel locked inside every piece of marble,
-I think there is a brilliant child locked inside every student.
+> Just as Michelangelo thought there was an angel locked inside every piece of marble,  
+> I think there is a brilliant child locked inside every student.  
 >
 > — Marva Collins
 

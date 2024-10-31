@@ -3,7 +3,7 @@
 *Building the Capacity to Absorb and Adapat*
 
 > It is not the most intellectual of the species that survives; it is not the strongest . . .  
-the species that survives is the one that is able best to adapt.  
+> the species that survives is the one that is able best to adapt.  
 >
 > — Leon C. Megginson
 

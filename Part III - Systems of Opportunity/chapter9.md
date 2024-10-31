@@ -2,8 +2,8 @@
 
 *Discovering Uncut Gems in Job Interviews and College Admissions*
 
-> Success is to be measured not so much by the position that one has reached in life
-as by the obstacles . . . overcome while trying to succeed.
+> Success is to be measured not so much by the position that one has reached in life  
+> as by the obstacles . . . overcome while trying to succeed.  
 >
 > — Booker T. Washington
 

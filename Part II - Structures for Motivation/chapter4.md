@@ -2,7 +2,7 @@
 
 *Infusing Passion into Practice*
 
-> It is neither work nor play, purpose nor purposelessness that satisfies us. It is the dance between.
+> It is neither work nor play, purpose nor purposelessness that satisfies us. It is the dance between.  
 >
 > — Bernard De Koven
 
