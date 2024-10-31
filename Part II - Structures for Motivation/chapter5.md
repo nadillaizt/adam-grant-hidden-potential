@@ -6,7 +6,7 @@
 >
 > — George Eliot
 
-Chapter ini menceritakan perjalanan R.A. Dickey, seorang pemain baseball yang awalnya dianggap sebagai bakat besar. Saat masih muda, ia diincar oleh pencari bakat dan dianggap memiliki masa depan cerah. Setelah meraih medali perunggu Olimpiade dan dipilih oleh Texas Rangers, kariernya tampak menjanjikan. Namun, segalanya berubah ketika diketahui bahwa R.A. tidak memiliki ligamen penting di sikunya, yang menyebabkan tim mengurangi bonusnya secara drastis dan menempatkannya di liga minor. Situasi ini membuat kariernya mandek, meski ia terus berusaha keras untuk kembali ke liga utama.
+Chapter ini menceritakan perjalanan R.A. Dickey, seorang pemain baseball yang awalnya dianggap sebagai bakat besar. Saat masih muda, ia diincar oleh pencari bakat dan dianggap memiliki masa depan cerah. Setelah meraih medali perunggu Olimpiade dan dipilih oleh Texas Rangers, kariernya tampak menjanjikan. Namun, segalanya berubah ketika diketahui bahwa R.A. tidak memiliki ligamen penting di sikunya, yang menyechapterkan tim mengurangi bonusnya secara drastis dan menempatkannya di liga minor. Situasi ini membuat kariernya mandek, meski ia terus berusaha keras untuk kembali ke liga utama.
 
 R.A. Dickey menghabiskan bertahun-tahun di liga minor, merasakan stagnasi dalam performanya dan merasa kariernya tidak berkembang. Dia menganggapnya sebagai kehilangan masa-masa terbaik dalam hidupnya. Ketika akhirnya mendapat kesempatan bermain di liga utama, penampilannya tidak memenuhi harapan, dan dia kembali turun ke liga minor beberapa kali. Di usia 31 tahun, tampaknya kariernya di MLB telah berakhir, dan banyak yang menganggapnya gagal mencapai potensi yang diharapkan.
 
